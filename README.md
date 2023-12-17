@@ -16,5 +16,5 @@ Feel free to reach out to me to explore synergies and discuss how my expertise c
 ## Get in touch :coffee:
 
 - Your future buddy to discuss businness related things on [Telegram](https://t.me/mahdimahdinezhad).
-- Your future boss on [LinkedIn](https://www.linkedin.com/in/mahdi-mahdinezhad-865090226/)
+- hope to be future leader on [LinkedIn](https://www.linkedin.com/in/mahdi-mahdinezhad-865090226/)
 - And of course GitHub you're already on (Recursion).
